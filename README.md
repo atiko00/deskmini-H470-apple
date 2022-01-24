@@ -1,0 +1,1 @@
+# deskmini-H470-apple
